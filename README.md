@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓I am currently studying Computer Science with a specialisation in Cyber Security!<br><br><br>“If you’re not doing something that’s hard, it’s probably not worth doing.”<br>— Elon Musk
+👨‍🎓I am currently studying a Bachelor of Science Majoring in Computer Science with a specialisation in Cyber Security!<br><br><br>“If you’re not doing something that’s hard, it’s probably not worth doing.”<br>— Elon Musk
 
 
 ## 🌐 Socials:
